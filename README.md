@@ -30,5 +30,5 @@ También trabajé en **"Einkarem S.A."** (Empresa Constructora) como *Administra
 
 
 
-Y actualmente estoy enfocada en perfeccionarme y mejorar mis conocimientos, para trabajar en lo que realmente me gusta! :smile:
+>Y actualmente estoy enfocada en perfeccionarme y mejorar mis conocimientos, para trabajar en lo que realmente me gusta! :smile:<
 
