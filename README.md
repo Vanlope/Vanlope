@@ -19,15 +19,16 @@ Trabajo desde mis 17/18 años, una vez finalizado el nivel *Polimodal* (**Bachil
 Y trabajé en *"Garbarino"*, *"Cines Hoyts"*, Editoriales Jurídicas como *"Rubinzal Culzoni"* y *"Abeledo Perrot"*,
 Pero dos de los trabajos más relevantes fueron:
 
-**"Movistar Argentina"** donde me desempeñé en:
+**"Movistar Argentina"** donde me desempeñé por varios años en sectores como:
 - Ventas, 
 - At. a clientes, 
 - "Mave", 
 - Cobranzas,
 - Migraciones, entre otros...
 
-También trabajé en **"Einkarem S.A."** (Empresa Constructora) como *Administrativa* durante más de 8 años, hasta hace Julio de 2022.
+También trabajé en **"Einkarem S.A."** (Empresa Constructora) como *Administrativa* durante más de 8 años, hasta Julio de 2022.
 
 
-Y actualmente estoy enfocada en perfeccionarme y mejorar mis conocimientos, para trabajar en lo que realmente me gusta! :joy:
+
+Y actualmente estoy enfocada en perfeccionarme y mejorar mis conocimientos, para trabajar en lo que realmente me gusta! :smile:
 
