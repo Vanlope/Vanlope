@@ -29,5 +29,5 @@ Pero dos de los trabajos más relevantes fueron:
 También trabajé en **"Einkarem S.A."** (Empresa Constructora) como *Administrativa* durante más de 8 años, hasta Julio de 2022.
 
 
-Y actualmente estoy enfocada en perfeccionarme y mejorar mis conocimientos, para trabajar en lo que realmente me gusta! :smile:
+Y actualmente estoy enfocada en perfeccionarme y mejorar mis conocimientos, para trabajar en lo que realmente me gusta!
 
